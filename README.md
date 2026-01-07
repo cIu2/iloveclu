@@ -7,7 +7,7 @@
 · · ⸻ ·✶· ⸻ · ·
 <br>nine biiggest fan⠀(＾▽＾)
 
-<img src="https://i.pinimg.com/originals/63/03/56/6303565f20d83a0793cc66938d19f769.gif" width="480px">
+<img src="doctorcookie.png" width="420px">
 
 <br>tuxedo/tesco⠀⸻⠀it he him⠀⠀⠀⠀18,⠀british,⠀system (^q^)
 <br>nines bsf irl trust trust⠀⠀[strw](https://ponyexp.straw.page)⠀⠀[gimmicks](https://thesatiristsluvsong.straw.page)⠀⠀[ata](https://ponyexpress.atabook.org/)

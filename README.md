@@ -11,7 +11,7 @@ nines bsffl irl
 tuxedo/ tesco⠀⠀⸻⠀it
 <br>male⠀ 18⠀⠀british⠀sys⠀⠀(^q^)
 
-<br><a href="https://rentry.co/lynchmob" target="_blank">straw​</a>⠀⠀<a href="https://rentry.co/thesatiristsluvsong" target="_blank">gimmck wall​</a>⠀⠀<a href="https://ponyexpress.atabook.org/" target="_blank">新book​</a>
+<br><a href="https://lynchmob.straw.page" target="_blank">straw​</a>⠀⠀<a href="https://thesatiristsluvsong.straw.page" target="_blank">gimmck wall​</a>⠀⠀<a href="https://ponyexpress.atabook.org/" target="_blank">新book​</a>
 </h5>
 <br><img src="nine1.png" width="240px"><img src="nine2.png" width="240px">
 

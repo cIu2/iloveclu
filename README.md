@@ -6,8 +6,8 @@
 
 <br><img src="hi clu..omg.gif" width="480px">
 <h5>
-c:users/tesco⠀⠀ou⠀⠀pegasus⠀⠀⸻⠀⠀it
-<br>male⠀ 18⠀⠀british⠀npd sys⠀⠀(^q^)
+ask name⠀⠀program terms only
+<br>male⠀ 18⠀⠀british⠀⠀npd sys⠀⠀(^q^)
 
 <br><a href="https://lynchmob.straw.page" target="_blank">straw​</a>⠀⠀<a href="https://thesatiristsluvsong.straw.page" target="_blank">gimmck wall​</a>⠀⠀<a href="https://ponyexpress.atabook.org/" target="_blank">新book​</a>
 </h5>

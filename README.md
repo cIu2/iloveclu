@@ -5,10 +5,10 @@
 <img src="hi clu..omg.gif" width="480px">
 <br>
 <h5>
-nhuman terms only!!　　tron c.link
+nhuman terms only
   
-<br>male　　18yrs　 　british　　npd sys
+<br>male　 18yrs　 npd sys
 
-<br>hii sign <a href="https://clu.atabook.org/" target="_blank">新book​</a> c(-:
+<br>hii⠀sign⠀<a href="https://clu.atabook.org/" target="_blank">新book​</a>⠀c(-:
 </h5>
 

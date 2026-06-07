@@ -7,7 +7,7 @@
 <h5>
 nhuman terms only pls ok thanlks
   
-<br>nonhuman male　 18yrs　 npd sys
+<br> male　 18yrs　 npd sys
 
 <br>hii⠀sign⠀<a href="https://clu.atabook.org/" target="_blank">新book​</a>⠀ok?
 </h5>

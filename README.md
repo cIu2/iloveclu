@@ -5,6 +5,6 @@
 <img src="hi clu..omg.gif" width="480px">
 <br>
 <h5>
-wip bye
+Σヽ(ﾟДﾟ; )ﾉ ｱｯ
 </h5>
 

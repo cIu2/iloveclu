@@ -11,5 +11,3 @@ ${\text{\color{#7A7838}‿ clugate⠀⠀\color{#4C4C4D}ou⠀\color{#A6A6A8}tesco
 
 ${\text{\color{#A6A6A8} it⠀⠀\color{#4C4C4D}⠀he clu \color{#4C4C4D}⠀⠀⠀⠀no \color{#4C4C4D}they⠀⠀\color{#414349} ✚ 𓈒⠀ᴗ)}}$
 
-
-${\text{\color{#4C4C4D} wip}}$
